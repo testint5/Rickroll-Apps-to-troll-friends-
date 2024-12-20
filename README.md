@@ -2,4 +2,4 @@
 **ALL IS MADE FOR FUN ONLY**
 ~~Our programs are safe and only made for fun-#
 ==We dont getting any profits from these==
-Enjoy!
+You can use these to troll your friends if they agree. Enjoy!
